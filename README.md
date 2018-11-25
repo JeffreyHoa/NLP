@@ -26,3 +26,17 @@ be competent to sth.
 put great emphasis on 
 focus on
 
+issue the same explanation
+show the same thing
+illustrate
+prove that
+
+hold with 
+connect with
+
+earn their rules of sth
+control sth.
+
+underscore the discovery
+underestimate
+
