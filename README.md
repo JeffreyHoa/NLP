@@ -43,4 +43,27 @@ underestimate
 excess nutrients and some pollutants
 redundant nutrients andj some pollutants
 
+be prone to bias
+tend to do sth.
+
+indication
+sign
+
+survive
+exist
+
+particular
+specific
+
+vital
+important
+crucial
+
+intrigue sb
+attract sb
+
+comprehensive
+fair
+uniformed
+
 
